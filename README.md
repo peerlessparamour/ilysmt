@@ -1,7 +1,7 @@
 - about us .
   - 
   - romantic homicide system
-  - 15 bodily , 14+ only ( 13 us iffy , 12 & under will be blocked on sight )
+  - 15 bodily , 14+ only ( 13 is iffy , 12 & under will be blocked on sight )
   - they/them if reffering to body or us in general .
   - diagonsed with udd , bpd , dyslexia & more .
 
