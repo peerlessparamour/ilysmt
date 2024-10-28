@@ -17,7 +17,7 @@
   - 18+ can int just dont be weird . ( this goes for every1 . )
   - we are a non sharing fictosexual/yumeshipper of 6 characters
   - ^ if a char has "my husband/wife" it is one of our yumes .
-  - please do not say you're a bigger fan of our yumes . ^_^
+  - please do not say you're a bigger fan of our yumes .
   - we block typing quirk users on sight (not sry we're dyslexic)
 
 - main interests .
